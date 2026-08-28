@@ -2,7 +2,7 @@
 
 - 🌱 I’m currently working on Crossword Puzzles
 - 💬 Always happy to talk about mathematics
-- 📫 How to reach me: steven-williams@gmx.de
+- 📫 How to reach me: steven-williams[at]gmx.de
 - 😄 Pronouns: he/him
 
 
